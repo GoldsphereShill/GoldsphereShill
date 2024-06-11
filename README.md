@@ -2,7 +2,7 @@
 - 👀 I’m interested in Goldsphere 
 - 🌱 I’m currently learning Goldsphere 
 - 💞️ I’m looking to collaborate on Goldsphere 
-- 📫 Reach me by playing Goldspher
+- 📫 Reach me by playing Goldsphere
 - 😄 Pronouns: Gold / Sphere 
 - ⚡ Fun fact: Goldsphere is gud
 
